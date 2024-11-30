@@ -1,0 +1,2 @@
+# About
+Hey, welcome to this cozy corner of the internet that I created just to vent about life and serveras a memorandum of past times, regrets, hard choices and the general experience of livin in this retched world. Hope you find seomthin informative or enlightening in this space, and if not sorry to hear that ! Cya around
